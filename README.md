@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Rileyy7312
-- 👀 I’m interested in ... Deftones and Evanescence!
-- 🌱 I’m currently learning ... a lot of stuff!
-- 💞️ I’m looking to collaborate on ... nothing.
-- 📫 How to reach me ... Through email! (if i ever check it) 
+- 👋 Hi, I’m @Rileyy7312!!!!!
+- 👀 I’m interested in ... Deftones, Linkin Park. Evanescence. and several other bands!!
+- 🌱 I’m currently learning ... a lot of stuff! :D
+- 💞️ I’m looking to collaborate on ... nothing
+- 📫 How to reach me ... Through email! (if I ever check it) 
 - 😄 Pronouns: ... She/Her <3
 - ⚡ Fun fact: ... I have 3 cats, and I play CLarinet!
 
